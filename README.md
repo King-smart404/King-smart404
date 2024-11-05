@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @King-smart404
+- 👋 Hi, I’m @King smart
 - 👀 I’m interested in ...any Cyberworks, School admission workout,software programming etc
 - 🌱 I’m currently learning ...website development
 - 💞️ I’m looking to collaborate on ...#learnfactory
